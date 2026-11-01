@@ -94,7 +94,7 @@ ___
 
 to my irl twin brother xyler!
 
-to my online brother BonninBonninjr.!
+to my online brother Bonninjr.!
 
 to my irl cousin MaybeSebastian!
 
