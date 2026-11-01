@@ -108,7 +108,7 @@ more to be added!!
 
 ___
 
-# ₜₕₐₙₖ yₒᵤᵤ!!!
+# tₕₐₙₖ yₒᵤᵤ!!!
 
 TANKIU FOR READING MY READ.ME!! HEHEHEH SENDING LOVE TO EVERYONEEEE!!! <33
 
