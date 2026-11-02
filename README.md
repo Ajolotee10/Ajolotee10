@@ -100,7 +100,7 @@ to my irl cousin MaybeSebastian!
 
 to my irl cousins Vicky and Gaby(shhh, we dont talk abt lil fernando)
 
-to my online-soon-to-be-irl friend RayoXD_32!
+to my online-soon-to-be-irl friend and sister RayoXD_32!
 
 to my oomfs: Popcorn, Sod, jade, bonkerz, gypsey, aki, nerdyaa, eddie, binjour, untitled, evy, shortcake, terrified six, folkadeare!!
 
