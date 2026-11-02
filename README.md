@@ -5,6 +5,8 @@
 ___
 <img width="335" height="597" alt="copyImage" src="https://github.com/user-attachments/assets/563f3255-b720-4650-9c64-437c8fbcc2a5" />
 
+(fav artist btw ehehehe)
+
 ___
 
 # ₙₐₘₑ ₐₙd ₚᵣₒₙₒᵤₙₛ!
