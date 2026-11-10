@@ -19,6 +19,9 @@ ___
 
 ## ₘₒᵣₑ ᵢₙfₒ!
 
+<img width="1310" height="150" alt="image" src="https://github.com/user-attachments/assets/94595f7b-0377-4c8d-9179-684b2a6ac28d" />
+
+
 - ### Im bisexual!! im single so, ladies ladies, one at a time! /silly
 
 - ### Im neurodivergent! i am HSP!(**highly sensible person**) but might be *possible* autistic/adhd!!
