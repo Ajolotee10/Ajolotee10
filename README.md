@@ -98,7 +98,7 @@ ___
 
 [Medal]()
 
-Discord(ID: 1509317767919042603)
+Discord (ID: 1509317767919042603)
 
 [Ibispaint]()
 
