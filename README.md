@@ -1,11 +1,28 @@
+ 
  # ₐⱼ'ₛ ᵣₑₐd.ₘₑ!!
 
-### _its a small page to know me better!_
+> `Manahimik! Sabi ng sabik`
+> 
+> `Kawalang kibo; pagkakamali`
+> 
+>` Pangalan ko’y hinihingi`
+> 
+> `Aking tugon; pagkakamali`
+ 
+ [<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/215daceb-f72e-4392-92ec-d8bbe8475a60" />](https://www.youtube.com/watch?v=zMWm1QbkRBc)
+ 
+ __"Yaelokre - And the Hound (Reprise) 𓆱 (Lyrics)"__
+
+
+___
+
+### _This a small page to know me better!_
+
 <img width="1310" height="150" alt="image" src="https://github.com/user-attachments/assets/94595f7b-0377-4c8d-9179-684b2a6ac28d" />
 ___
 <img width="335" height="597" alt="copyImage" src="https://github.com/user-attachments/assets/563f3255-b720-4650-9c64-437c8fbcc2a5" />
 
-(fav artist btw ehehehe)
+(fav artist btw ehehehe^^)
 
 ___
 
