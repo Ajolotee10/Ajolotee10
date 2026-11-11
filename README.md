@@ -1,15 +1,9 @@
- 
- # ₐⱼ'ₛ ᵣₑₐd.ₘₑ!!
- ___
+ # aⱼ'ₛ ᵣₑₐd.ₘₑ!!
 
 ### _This a small page to know me better!_
 
 <img width="1310" height="150" alt="image" src="https://github.com/user-attachments/assets/94595f7b-0377-4c8d-9179-684b2a6ac28d" />
- <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/1de76e1e-56a3-4030-9e41-5efd3b3479d9" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/47601705-5b37-4bc5-9b0f-5d1db10021d3" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/b05127f1-db63-4c56-afdc-38dcf470f81e" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/2b42cf3e-f275-47de-a480-b2f16a8a45e6" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/233b7cfc-3ac5-40b8-9855-17b051b0ac33" />
-
-
-
-
+ <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/1de76e1e-56a3-4030-9e41-5efd3b3479d9" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/b05127f1-db63-4c56-afdc-38dcf470f81e" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/2b42cf3e-f275-47de-a480-b2f16a8a45e6" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/233b7cfc-3ac5-40b8-9855-17b051b0ac33" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/8b1db89d-c2d2-47cb-8a34-3147cfdd41aa" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/e70755b4-e004-4d44-be0f-9e56e09d6d98" />
 
 ___
 
@@ -36,7 +30,8 @@ ___
  
  ___
 
-## ₘₒᵣₑ ᵢₙfₒ!
+>[!IMPORTANT]
+>## ₘₒᵣₑ ᵢₙfₒ!
 
 
 - ### Im bisexual!! im single so, ladies ladies, one at a time! /silly
@@ -67,9 +62,10 @@ ___
 
 ## Dₙᵢ/ᵢWvₑC!
 
-List of people that makes me a bit uncomfortable/i dont want to have around/friend because it bothers me. if u are one of these, pls iwvec or dni depending on who u are in the list (see below) vv
+>[!NOTE]
+>List of people that makes me a bit uncomfortable/i dont want to have around/friend because it bothers me. if u are one of these, pls iwvec or dni depending on who u are in the list (see below vv)
 
-Meanings!
+# **Meanings!**
 
 IWVEC ☆
 
@@ -77,17 +73,17 @@ DNI ✪
 
 ---
 
-Problematic people - ☆
+Problematic people - **☆**
 
 Predators - ✪
 
 Homophobes - ✪
 
-Dark-shippers - ☆
+Dark-shippers - **☆**
 
 Toxic people - ✪
 
-Boundary breakers - ☆
+Boundary breakers - **☆**
 
 ___
 
@@ -128,10 +124,14 @@ to my oomfs: Popcorn, Sod, jade, bonkerz, gypsey, aki, nerdyaa, eddie, binjour, 
 
 more to be added!!
 
+
+<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/9168dac5-861d-436f-b1dc-eba66b5ef9f1" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/83e0595b-da12-48a2-9870-b8ca56729cc7" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/e6201418-1b91-478c-a326-d6ae3f6bbd39" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/cc3d45f1-0519-40e7-9591-5152c719b461" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/9fdb4c94-c27d-4da0-a338-5161b929b136" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/47601705-5b37-4bc5-9b0f-5d1db10021d3" />
+
+
 ___
 
 # tₕₐₙₖ yₒᵤᵤ!!!
 
 TANKIU FOR READING MY READ.ME!! HEHEHEH SENDING LOVE TO EVERYONEEEE!!! <33
 
-<img width="640" height="640" alt="copyImage" src="https://github.com/user-attachments/assets/fa27a54f-c1ab-45b8-9acc-9d2c02d7e949" />
+<img width="1000" height="100" alt="copyImage" src="https://github.com/user-attachments/assets/fa27a54f-c1ab-45b8-9acc-9d2c02d7e949" />
