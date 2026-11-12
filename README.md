@@ -34,29 +34,29 @@ ___
 >## ₘₒᵣₑ ᵢₙfₒ!
 
 
-- ### Im bisexual!! im single so, ladies ladies, one at a time! /silly
+-  Im bisexual!! im single so, ladies ladies, one at a time! /silly
 
-- ### Im neurodivergent! i am HSP!(**highly sensible person**) but might be *possible* autistic/adhd!!
+-  Im neurodivergent! i am HSP!(**highly sensible person**) but might be *possible* autistic/adhd!!
 
-- ### Im a cat therian!! a blue russian cat to be specific!!
+-  Im a cat therian!! a blue russian cat to be specific!!
 
-- ### Im a sys(system)!
+-  Im a sys(system)!
 
-- ### i like a lot of things and hate others, you can check in my [strawpage](https://ajoloteesamazingsite.straw.page/)!!(redoing it)
+-  i like a lot of things and hate others, you can check in my [strawpage](https://ajoloteesamazingsite.straw.page/)!!(redoing it)
 
-- ### sign my [atabook!!](https://ajoloteesamazing.atabook.org/)
+-  sign my [atabook!!](https://ajoloteesamazing.atabook.org/)
 
-- ### see my [prns page!](https://pronouns.cc/@Ajolot33)
+-  see my [prns page!](https://pronouns.cc/@Ajolot33)
 
 ___
 
 ## ₜₒₚ 3 Fₐₙdₒₘₛ!
 
-Yaelokre - Pretty much active
+**Yaelokre** - Pretty much active
 
-OSC - Active
+**OSC** - Active
 
-Hamilton - Active
+**Hamilton** - Active
 
 ___
 
@@ -67,23 +67,23 @@ ___
 
 # **Meanings!**
 
-IWVEC ☆
+**IWVEC ☆**
 
-DNI ✪
+**DNI** ✪
 
 ---
 
-Problematic people - **☆**
+**Problematic people** - **☆**
 
-Predators - ✪
+**Predators** - ✪
 
-Homophobes - ✪
+**Homophobes** - ✪
 
-Dark-shippers - **☆**
+**Dark-shippers** - **☆**
 
-Toxic people - ✪
+**Toxic people** - ✪
 
-Boundary breakers - **☆**
+**Boundary breakers** - **☆**
 
 ___
 
