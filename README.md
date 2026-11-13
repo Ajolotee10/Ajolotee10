@@ -65,7 +65,8 @@ ___
 >[!NOTE]
 >List of people that makes me a bit uncomfortable/i dont want to have around/friend because it bothers me. if u are one of these, pls iwvec or dni depending on who u are in the list (see below vv)
 
-# **Meanings!**
+>[!IMPORTANT]
+># **Meanings!**
 
 **IWVEC ☆**
 
@@ -87,7 +88,9 @@ ___
 
 ___
 
-## ₐccₒᵤₙₜₛ!
+[!TIP]
+>## ₐccₒᵤₙₜₛ!
+
 [Pinterest]()
 
 [Roblox]()
@@ -108,7 +111,8 @@ Discord (ID: 1509317767919042603)
 
 ___
 
-## ₛₕₒᵤₜ ₒᵤₜₛ!
+>[!IMPORTANT]
+>## ₛₕₒᵤₜ ₒᵤₜₛ!
 
 to my irl twin brother xyler!
 
