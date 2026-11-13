@@ -24,9 +24,9 @@ ___
 
 # ₙₐₘₑ ₐₙd ₚᵣₒₙₒᵤₙₛ!
 
-### Hellow!! Im **Ajolotee** but u can call me **Aj or Cylux/Arho/Zudo/Rgaby(Ru-ga-by)/Tevy**!!(depending on who is fronting, also if you want to call me by my cosplay/introject is fine)
+Hellow!! Im **Ajolotee** but u can call me **Aj or Cylux/Arho/Zudo/Rgaby(Ru-ga-by)/Tevy**!!(depending on who is fronting, also if you want to call me by my cosplay/introject is fine)
 
-### I go by **neutral pronouns(they/it)!!** Im also a **mirrorpronomial**, so i use mirrorpronouns (use **ur** pronouns on **me**)!
+I go by **neutral pronouns(they/it)!!** Im also a **mirrorpronomial**, so i use mirrorpronouns (use **ur** pronouns on **me**)!
  
  ___
 
