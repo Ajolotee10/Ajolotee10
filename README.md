@@ -24,9 +24,9 @@ ___
 
 # ₙₐₘₑ ₐₙd ₚᵣₒₙₒᵤₙₛ!
 
-### Hellow!! Im **Ajolotee** but u can call me **Aj or Cylux/Arho/Zudo/Rgaby(Ru-ga-by)/Tevy**!!
+### Hellow!! Im **Ajolotee** but u can call me **Aj or Cylux/Arho/Zudo/Rgaby(Ru-ga-by)/Tevy**!!(depending on who is fronting, also if you want to call me by my cosplay/introject is fine)
 
-### I go by **neutral pronouns(they/it)!!** Im also a **mirrorpronomial**, so i use mirrorpronouns(use **ur** pronouns on **me**)!
+### I go by **neutral pronouns(they/it)!!** Im also a **mirrorpronomial**, so i use mirrorpronouns (use **ur** pronouns on **me**)!
  
  ___
 
@@ -36,9 +36,9 @@ ___
 
 -  Im bisexual!! im single so, ladies ladies, one at a time! /silly
 
--  Im neurodivergent! i am HSP!(**highly sensible person**) but might be *possible* autistic/adhd!!
-
 -  Im a cat therian!! a blue russian cat to be specific!!
+
+-  Im neurodivergent! i am HSP!(**highly sensible person**) but might be *possible* autistic/adhd!!
 
 -  Im a sys(system)!
 
@@ -49,8 +49,8 @@ ___
 -  see my [prns page!](https://pronouns.cc/@Ajolot33)
 
 ___
-
-## ₜₒₚ 3 Fₐₙdₒₘₛ!
+>[!TIP]
+>## ₜₒₚ 3 Fₐₙdₒₘₛ!
 
 **Yaelokre** - Pretty much active
 
