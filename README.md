@@ -129,7 +129,7 @@ ___
 >[!NOTE]
 >Just a dump of my art lmao
 
-TBA!
+[click here!](https://github.com/Ajolotee10/Aj-s_Creative_Dump/blob/main/README.md)
 
 ___
 
