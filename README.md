@@ -122,7 +122,29 @@ to my online-soon-to-be-irl friend and sister RayoXD_32!
 
 to my oomfs: Popcorn, Sod, jade, bonkerz, gypsey, aki, nerdyaa, eddie, binjour, untitled, evy, shortcake, terrified six, folkadeare!!
 
-more to be added!!
+___
+
+## Creative corner!
+
+>[!NOTE]
+>Just a dump of my art lmao
+
+TBA!
+
+___
+
+
+## Documents of users 
+
+>[!NOTE]
+>Documents for players or for players
+
+[click here!](https://github.com/Ajolotee10/documents-of-or-for-players)
+
+___
+
+>[!WARNING]
+>**more to be added!! things might change in the future!!**
 
 
 <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/9168dac5-861d-436f-b1dc-eba66b5ef9f1" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/83e0595b-da12-48a2-9870-b8ca56729cc7" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/e6201418-1b91-478c-a326-d6ae3f6bbd39" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/cc3d45f1-0519-40e7-9591-5152c719b461" /> <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/47601705-5b37-4bc5-9b0f-5d1db10021d3" />
