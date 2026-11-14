@@ -161,3 +161,22 @@ ___
 TANKIU FOR READING MY READ.ME!! HEHEHEH SENDING LOVE TO EVERYONEEEE!!! <33
 
 <img width="1000" height="100" alt="copyImage" src="https://github.com/user-attachments/assets/fa27a54f-c1ab-45b8-9acc-9d2c02d7e949" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ᵍᵘʸᶻ ʷʰᵒ ʷᵃⁿⁿᵃ ᵇᵉ ᵐʸ ᵃᵘᵗʰᵒʳ ᵗᵒ ᵐʸ ᵖʳᵒᵗᵃᵍ?
