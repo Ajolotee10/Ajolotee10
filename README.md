@@ -159,11 +159,8 @@ ___
 
 ___
 
-# tₕₐₙₖ yₒᵤᵤ!!!
+<img width="1600" height="900" alt="aaaa" src="https://github.com/user-attachments/assets/a87af631-2b5d-41db-9543-979d0cb504de" />
 
-TANKIU FOR READING MY READ.ME!! HEHEHEH SENDING LOVE TO EVERYONEEEE!!! <33
-
-<img width="1000" height="100" alt="copyImage" src="https://github.com/user-attachments/assets/fa27a54f-c1ab-45b8-9acc-9d2c02d7e949" />
  
  .
  
