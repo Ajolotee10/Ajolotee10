@@ -150,6 +150,15 @@ ___
 
 ___
 
+## Information about Alters/Introjects
+
+>[!NOTE]
+>Info about my system
+
+[click here!](https://github.com/Ajolotee10/information-about-my-alters)
+
+___
+
 >[!WARNING]
 >**more to be added!! things might change in the future!!**
 
