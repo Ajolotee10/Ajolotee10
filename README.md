@@ -1,4 +1,5 @@
- # aⱼ'ₛ ᵣₑₐd.ₘₑ!!
+<img width="1600" height="900" alt="aa" src="https://github.com/user-attachments/assets/577a14b9-f56d-4c64-9f51-b89c383cd1b1" />
+
 
 ### _This a small page to know me better!_
 
