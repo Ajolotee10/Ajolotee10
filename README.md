@@ -104,7 +104,7 @@ ___
 
 [Medal]()
 
-Discord (ID: 1509317767919042603)
+Discord: (4j0lote3)
 
 [Ibispaint]()
 
